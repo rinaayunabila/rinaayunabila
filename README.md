@@ -7,7 +7,7 @@ I am Rina, from Riau, Indonesia. I am an informatics engineering student who lov
 - 📖 I love reading books on self-development
 
 
-[MY PORTFOLIO]([https://www.linkedin.com/in/rinaayunabila](https://drive.google.com/file/d/1CEgxPEc60AStgll81Bi8m0r9-xmTjZju/view?usp=sharing)
+[MY PORTFOLIO](https://drive.google.com/file/d/1CEgxPEc60AStgll81Bi8m0r9-xmTjZju/view?usp=sharing)
 
 [MY LINKEDIN](https://www.linkedin.com/in/rinaayunabila)
 <!--
